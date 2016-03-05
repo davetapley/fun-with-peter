@@ -1,7 +1,7 @@
 sdfds
 sdfdsf
 dsfsd
-# this is madness!
+# this is fun!
 fsd
 fds
 fsd
